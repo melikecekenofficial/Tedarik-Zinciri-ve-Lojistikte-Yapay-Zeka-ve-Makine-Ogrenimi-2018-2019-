@@ -1,0 +1,1 @@
+# Tedarik-Zinciri-ve-Lojistikte-Yapay-Zeka-ve-Makine-renimi-2018-2019-
